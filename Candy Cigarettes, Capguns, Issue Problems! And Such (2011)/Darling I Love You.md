@@ -16,7 +16,7 @@ Since you left, since you've been gone.
 But it's so hard on me.
 
 Talked to a girl in first hour.  
-Bought her a CD, butterfly  
+Bought her a CD, bought her a flower  
 But she's a stupid cunt.
 
 But I'll take anything,  
