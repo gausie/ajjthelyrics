@@ -22,4 +22,4 @@ And it's sad to know that we are not alone in this
 and it's said to know there's no honest way out
 
 In this life we lead, we can conquer every thing  
-If we could just feel brave to get out of bed in the morning
+If we could just get the brave to get out of bed in the morning
