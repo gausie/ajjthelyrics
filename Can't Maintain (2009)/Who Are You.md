@@ -4,7 +4,7 @@ And where are you from?
 And what do you know?
 
 You're in my blood  
-And you're in the hair  
+And you're in my hair  
 You're in my heart  
 And you're in the air
 
