@@ -8,7 +8,7 @@ And I gave some sauce to my bestest friend for cooking
 And I gave water to all I thought were thirsty  
 That's how I learned how to survive
 
-And I gaveve my money to the bank for safe keeping  
+And I gave my money to the bank for safe keeping  
 And I gave my money to my landlord, he was needing it  
 And I gave attention to the TV that was bleeding  
 That's how I learned how to survive
